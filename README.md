@@ -5,5 +5,5 @@ I volunteer at hospitals. Specifically last summer I volunteered at Robert Wood 
 
 ### Social Media
 * Snapchat: actually_aditya
-* Item 2 Instagram: a_vijay21
-* Item 3 Email: adityavijay1221@gmail.com
+* Instagram: a_vijay21
+* Email: adityavijay1221@gmail.com
